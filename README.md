@@ -1,2 +1,2 @@
 # Kingcoin-
-The new age of crytocurrency. begins!!
+The new age of crytocurrency. begins!
